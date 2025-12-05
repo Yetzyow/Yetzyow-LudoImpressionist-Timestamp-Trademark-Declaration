@@ -1,0 +1,1 @@
+# Yetzyow-LudoImpressionist-Timestamp-Trademark-Declaration
